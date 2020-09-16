@@ -2,7 +2,7 @@
 DEFEAT FALSE DUOPOLY DEUTERONOMY 30:19 19 This day I call the heavens and the earth as witnesses against you that I have set before you life and death, blessings and curses. Now choose life, so that you and your children may live 
 
 
-Deuteronomy 30:15-20
+## Deuteronomy 30:15-20
 New International Version
 
 > 15 See, I set before you today life and prosperity, death and destruction. 16 For I command you today to love the Lord your God, to walk in obedience to him, and to keep his commands, decrees and laws; then you will live and increase, and the Lord your God will bless you in the land you are entering to possess.
